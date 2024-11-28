@@ -23,4 +23,4 @@ Through the lens of **biomimicry**, I aim to create technology that mirrors the 
 ### **🤝 Let's Collaborate**  
 Are you passionate about **STEM** and innovation? Let’s collaborate! I'm always looking for exciting opportunities to work with fellow **STEM** enthusiasts and researchers. Whether you’re working on biomimetic design, robotics, AI, or IoT solutions, let’s connect and build something meaningful together.  
 
-💼 **LinkedIn:** (https://www.linkedin.com/public-profile/settings?trk=d_flagship3_profile_self_view_public_profile)
+💼 **LinkedIn:** ((https://bit.ly/4g9ltRu)
